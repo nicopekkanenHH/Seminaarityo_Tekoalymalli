@@ -1,0 +1,1 @@
+# Seminaarity-_Teko-lymalli
